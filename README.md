@@ -1,0 +1,2 @@
+# portfolio
+Assalamu alaikum , I'm Rezowan Ahmed  I've been a graphic designer for 3 years. I was 15 when i had falled in love with graphic designing and this relationship is still continuing being an immense part of my life. My first design was a logo for a friend of mine. I was very satisfied with the outcome and through how brilliant and modern it was.  When i look at it now i can't believe that my hands made something like this. Over the years, I've completely changed my style now and i try to make modern, creative simple and timeless designs. 
